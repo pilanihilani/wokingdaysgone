@@ -8,7 +8,7 @@ bluetooth station p
 
 music staion o
 bits>iit ? o
-GN hostel  p
+
 roomnumber 2109
 rememberthename
 mynameisram
