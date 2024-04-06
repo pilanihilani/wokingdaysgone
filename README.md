@@ -2,7 +2,7 @@ IIT IS HARD
 BITS IS HARD
 YOU KNOW WHAT
 ALL THE FLAGS g
-die some day r
+
 all the green vegs e
 bluetooth station p
 
